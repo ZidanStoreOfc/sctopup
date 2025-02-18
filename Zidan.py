@@ -1,5 +1,5 @@
-# Encoded By Py-Fuscate
-# https://github.com/Sl-Sanda-Ru/Py-Fuscate
+# Encoded By ZidanDev
+# https://github.com/ZidanStoreOfc
 # Make Sure You're Running The Program With python3.12 Otherwise It May Crash
 # To Check Your Python Version Run "python -V" Command
 try:
