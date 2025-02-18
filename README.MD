@@ -2,9 +2,19 @@
 
 ![alt txt](https://github.com/ZidanStoreOfc/scvip/blob/main/ZIDAN%20STORE.jpg?raw=true)
 
-# Perintah Untuk Mennginstall
+# Harga Sewa Script Top Up Bussid Instan
+- 1 MINGGU : 10K/10.000
+- 2 MINGGU : 20K/20.000
+- 3 MINGGU : 30K/30.000
+- 1 BULAN : 40K/40.000
+- 2 BULAN : 60K/60.000
+- 3 BULAN : 80K/80.000
+- 4 BULAN : 90K/90.000
+- 5 BULAN : 100K/100.000
+- 6 BULAN : 110K/110.000
+- PERMANEN : 150K/150.000
 
-KEUNTUNGAN:
+# KEUNTUNGAN:
 - PENGISIAN 60JT [ INSTAN ]
 - PENGISIAN 150JT [ INSTAN ]
 - PENGISIAN 200JT [ INSTAN ]
@@ -26,7 +36,7 @@ KEUNTUNGAN:
 
 # Semoga Membantu
 
-## MINAT MEMBELI SCRIPT INI?. SILAHKAN KLIK TULISAN "WHATSAPP" DI BAWAH INI
+# MINAT MEMBELI SCRIPT INI?. SILAHKAN KLIK TULISAN "WHATSAPP" DI BAWAH INI
 
 # [WhatsApp](https://wa.me/62895354291993)
 Atau Bisa Wa langsung
