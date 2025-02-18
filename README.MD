@@ -38,7 +38,7 @@
 
 # MINAT MEMBELI SCRIPT INI?. SILAHKAN KLIK TULISAN "WHATSAPP" DI BAWAH INI
 
-# [WhatsApp](https://wa.me/62895354291993)
+[WhatsApp](https://wa.me/62895354291993)
 Atau Bisa Wa langsung
 
 https://wa.me/62895354291993
