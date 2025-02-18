@@ -43,4 +43,4 @@ Atau Bisa Wa langsung
 
 https://wa.me/62895354291993
 
-© Copright By Zidan Store
+© Copyright By Zidan Store
