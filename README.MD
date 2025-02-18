@@ -1,6 +1,6 @@
 # Fitur Apa Saja Yang Tersedia?
 
-![alt txt](https://github.com/ZidanStoreOfc/scvip/blob/main/Screenshot_20250218_152317_ZIDAN20%STORE.jpg?raw=true)
+![alt txt](https://github.com/ZidanStoreOfc/scvip/blob/main/Screenshot_20250218_152317_%20ZIDAN%20STORE.jpg?raw=true)
 
 
 # Harga Sewa Script Top Up Bussid Instan
